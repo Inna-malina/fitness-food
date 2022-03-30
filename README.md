@@ -1,1 +1,1 @@
-https://inna-malina.github.io/fitnes-food/
+https://inna-malina.github.io/fitness-food/
